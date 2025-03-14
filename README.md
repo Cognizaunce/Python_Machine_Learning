@@ -1,1 +1,1 @@
-![image](https://github.com/user-attachments/assets/7c5c57f5-7a5d-4b1c-8997-20a07265a2eb)
+![image](https://learner.mycreds.ca/public/assertions/euLb_Mz5R7GNUBIYiO_ZjA/image)
